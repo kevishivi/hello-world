@@ -1,1 +1,2 @@
 hello boiis
+allahu akbar
